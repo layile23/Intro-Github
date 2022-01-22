@@ -7,4 +7,4 @@
 
 ¡Lo logré manixes! ¡Qué felicidad!
 
-¡[Aniversario 67 de mis abuelos](img/Aniv.67.jpg)
+¡[Aniversario 67 de mis abuelos](img/Aniv.jpg)
